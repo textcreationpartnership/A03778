@@ -35,7 +35,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-GREAT BRITTAINES RESVRrection: Or the Parliaments paſſing Bell.BY VVAY OF PSALMODIE, AGAINST the try
+
 1. To the right Worſhipful, Sir VVilliam VVaade Knight, Lieutenant to his Maieſtie, in his Highnes Tower of London: Grace and fauour with God and man, be multiplied in Ieſus Chriſt.
 
 1. To the deuout and Chriſtian Reader.
